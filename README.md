@@ -1,7 +1,7 @@
 - Hi, I’m @abhyudaii 
 - Im a student (11th grade)-Medical ⚕️
 - I run a website: www.abhiudai.com (hip-hop club and blog page) 😼
-- My mail: god@abhiudai.com (for buisness) ; epicabhyudai@gmail.com (for urgent replies) 🥂
+- My mail: abhyudai@abhiudai.com (for buisness) ; epicabhyudai@gmail.com (for urgent replies) 🥂
 - CEO of "S P A C E"- www.abhiudai.com 🤠
 - Instagram: @abhiudaii & @abhyudaii
 <!---
