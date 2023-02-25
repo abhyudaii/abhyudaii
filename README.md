@@ -1,1 +1,1 @@
-https://www.abhiudai.com/spotify/
+rizcross.crab.place
